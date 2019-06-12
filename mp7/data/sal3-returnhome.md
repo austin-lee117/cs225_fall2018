@@ -1,0 +1,1 @@
+On Earth, you are awarded, applauded, and idolized. You have done the impossible. You spend the rest of your days working on subsequent projects for Mars. You die peacefully, surrounded by loved ones, dreaming of space.

@@ -1,0 +1,1 @@
+You work on the colony for many years, living off of the technologies you build. A decade later, you return home to find the world completely changed, and your loved ones distant. You spend the rest of your days directing projects and providing consultation. You die having lived a fulfilling life, idolized and crowned, but as a lonely genius. 

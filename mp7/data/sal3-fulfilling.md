@@ -1,0 +1,1 @@
+You spend the rest of your days on the fortune you made with your previous ventures. Taking small consultations every now and then, you reach old age. You die peacefully, surrounded by loved ones, but still wondering what could have been otherwise.

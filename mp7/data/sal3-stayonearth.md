@@ -1,0 +1,1 @@
+After a successful Mars mission, you are awarded, applauded, and idolized. You die peacefully, surrounded by loved ones, but dreaming about space and all it's possibilities. Your last thought is regret staying on Earth as you pass away. 
